@@ -1,0 +1,1 @@
+# Permiso.circulacion.FSKD67-2.validar.cl
